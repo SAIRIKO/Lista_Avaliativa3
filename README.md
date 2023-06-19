@@ -1,1 +1,1 @@
-#Lista avaliativa 3 integrantes: Matheus Dias, Murilo Cauã, Pedro Lucas .
+#Lista avaliativa 3 integrantes: Murilo Cauã, Pedro Lucas .
